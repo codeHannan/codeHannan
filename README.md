@@ -32,7 +32,6 @@ How to Reach Me
 
 Fun Facts
 + I pick up new interests faster than I finish shows on my watchlist — but I'm working on it. 😄
-+ Hobbies: Gaming, Watching Movies/Series, Cycling, Badminton and Hiking.
   
 ---
 
