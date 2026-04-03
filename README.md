@@ -9,11 +9,11 @@ Passionate about **cyber security**, exploring **business**, and building my lea
 **About Me**
 
 - Currently in my **4rd semester of BSCS** at Air University<br>
-- Developing a growing interest in **Cyber Security** and how it shapes modern technology<br>
+- Developing a growing interest in **Cyber Security**<br>
 - Recently diving into **business & entrepreneurship**<br>
 
 What I'm Working On
-- Strengthening my fundamentals in **Buisness**, **Tech**, and **Security**
+- Strengthening my fundamentals in **Buisness** and **Security**
 - Exploring real-world project ideas to boost my portfolio
 
   
